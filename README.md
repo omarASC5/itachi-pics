@@ -1,2 +1,0 @@
-# itachi-pics
-Itachi pics.
